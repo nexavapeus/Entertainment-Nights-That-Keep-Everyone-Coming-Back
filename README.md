@@ -60,7 +60,7 @@ Enjoying casual social evenings.
 
 Personal preferences shape every entertainment experience, making it feel natural and enjoyable. Small traditions often become the moments people look forward to the most.
 
-Some lifestyle conversations also mention <a href="https://nexavape.us/collections/nexa-pix-35k">Nexa Vape</a> as part of social settings where people gather to relax, chat, and enjoy shared entertainment experiences. These conversations are simply another example of how personal preferences often become part of broader entertainment culture.
+Some lifestyle conversations also mention <a href="https://nexavape.us/">Nexa Vape</a> as part of social settings where people gather to relax, chat, and enjoy shared entertainment experiences. These conversations are simply another example of how personal preferences often become part of broader entertainment culture.
 
 ******Entertainment Continues Creating New Conversations****
 
@@ -68,7 +68,7 @@ Entertainment never stands still because people are always looking for something
 
 Communities built around entertainment continue to grow because people enjoy connecting through common interests. Friendly conversations, personal opinions, and shared excitement often matter more than finding the perfect choice.
 
-Many lifestyle discussions also include topics like <a href="https://nexavape.us/collections/nexa-pix-35k">Nexa Vape Flavors</a>, showing how different interests naturally appear together during conversations centered on relaxation, social gatherings, and entertainment.
+Many lifestyle discussions also include topics like <a href="https://nexavape.us/pages/nexa-vape-flavors">Nexa Vape Flavors</a>, showing how different interests naturally appear together during conversations centered on relaxation, social gatherings, and entertainment.
 
 The most enjoyable entertainment experiences are often the ones that happen without complicated planning. A comfortable setting, good company, and something enjoyable to watch, play, or discuss can create lasting memories that people happily revisit again and again.
 
